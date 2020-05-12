@@ -20,8 +20,6 @@ Se venden diferentes grupos de bienes, incluidos bienes turísticos (carpas, esp
 
 Mercado de Agricultores Souk el Tayeb
 
-![Branching](2-678678.jpg)
-
 ### Galería de los zocos
 
 En Beirut Souks, desde la calle Trablos, los domingos hay un mercado de agricultores: Souk el Tayeb. Funciona de 9 a.m. a 2 p.m. Allí puede comprar y nueces de los agricultores locales. Un evento muy interesante, donde la gente del pueblo se congrega y si ni siquiera necesita repollo y otras visitar al menos por el bien del proceso. Las especias orientales están ampliamente representadas en el mismo mercado. Sin embargo, se pueden comprar en todas partes, incluso en supermercados comunes.
