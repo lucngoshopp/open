@@ -1,12 +1,10 @@
-[Image](b7d826a85_200.png)
-
 # Bruselas: ¿qué y dónde comprar?
 
 Bruselas se mantienen en un en curso en hacer un buen trabajo para ahorrar dinero. No es difícil entender que se está realizando una venta. Sin un viaje, ningún viaje es impensable, por lo tanto, después de haber visitado los lugares de interés de  se mantienen en un hacer un buen trabajo para ahorrar dinero. No es difícil entender que se está realizando una venta. Otras la antigua  de darle un toque de sabor al país, algo que es hay una boutique Stijl multimarca.
 
 Puedes encontrar de todo, incluida la alta moda de París e Italia. La negociación se acepta en todas partes, tanto en pequeñas tiendas de la calle como en grandes tiendas. Hay mercados familiares, hay supermercados familiares y hay centros comerciales familiares. En términos de oportunidades de compra, no es de ninguna manera inferior a las compras europeas, pero además de las tiendas y marcas internacionales, se agregan tiendas locales pequeñas pero muy coloridas.
 
-[Image](1-67576.jpg)
+![Branching](1-67576.jpg)
 
 El es un imán para todos los entusiastas de las compras. En muchas guías, Sauks figura como un mercado. Él era así, pero después de la guerra, el moderno Centro Comercial creció en lugar del mercado, definitivamente no se puede llamar mercado.
 
@@ -22,7 +20,7 @@ Se venden diferentes grupos de bienes, incluidos bienes turísticos (carpas, esp
 
 Mercado de Agricultores Souk el Tayeb
 
-[Image](2-678678.jpg)
+![Branching](2-678678.jpg)
 
 ### Galería de los zocos
 
